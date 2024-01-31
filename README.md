@@ -3,4 +3,4 @@
 - 🌱 I’m currently making ue arcade shooter game
 - 💞️ I will post here some prototypes
 - 😄 Pronouns: he/him/his
-- ⚡ Fun fact: i need 3d modeler badly(but i'm introvert
+- ⚡ Fun fact: i need 3d modeler badly(but i'm introvert)
